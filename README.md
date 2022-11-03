@@ -1,2 +1,0 @@
-# zZxck.github.io
-::::
